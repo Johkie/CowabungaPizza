@@ -1,2 +1,2 @@
 # CowabungaPizza
-The next step of evolution is coming. It's coming mon!
+The next step of evolution is coming. IS coming mon!
